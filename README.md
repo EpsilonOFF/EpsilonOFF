@@ -1,5 +1,7 @@
 ![a](https://github.com/EpsilonOFF/EpsilonOFF/assets/155597718/90771f34-23fc-4f86-ba9d-fb3168f0302c)
+<center>
 ![gojo-satoru-jujutsu-kaisen](https://github.com/EpsilonOFF/EpsilonOFF/assets/155597718/9fdf7597-79f3-491a-a3e4-9bf044e385ca)
+</center>
 
 # I DEVELOPPER IN
 
